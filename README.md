@@ -1,2 +1,6 @@
 # hello-world
 Experimenting with this for the first time
+
+well , life is good...
+Just found this and I am exited to apply this to my architectural design field....
+Any architects or designers aroi=und that use this???? just curious
